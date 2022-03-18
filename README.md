@@ -6,7 +6,7 @@
 
 I have made websites which are uploaded but for some reason I cant set the source code public.
 
-Currently working on website projects and studying cyber security.
+Currently studying cyber security.
 
 
 
