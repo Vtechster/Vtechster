@@ -3,7 +3,7 @@
 - 🌱 I’m actively learning Cyber security along college academics
 - 💞️ I’m looking to collaborate on Cyber security projects
 - Contact:<br>
-• Phone: +919810980473 (Whatsapp)<br>
+• Email: vanshaggarwal400@gmail.com<br>
 • Instagram: https://www.instagram.com/vtechster/ <br>
 • Twitter: https://twitter.com/vtechster <br>
 • Linkedin: https://www.linkedin.com/in/vtechster/ <br>
