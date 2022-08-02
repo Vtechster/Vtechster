@@ -8,8 +8,6 @@
 • Twitter: https://twitter.com/vtechster <br>
 • Linkedin: https://www.linkedin.com/in/vtechster/ <br>
 
-I have made websites which are uploaded but for some reason I cant set the source code public.
-
 
 
 <!---
